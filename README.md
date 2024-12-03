@@ -1,4 +1,4 @@
-![image](https://pin.it/30pCkqrgm) 
+![image]https://pin.it/1YhWO1DYf
 
 <!---
 DEATHCRANES/DEATHCRANES is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
